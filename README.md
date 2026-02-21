@@ -1,5 +1,6 @@
 # smfroi
 ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦
+<img width="734" height="516" alt="Screenshot 2026-01-24 154510" src="https://github.com/user-attachments/assets/4d23110e-22d9-4494-9030-98607320bd77" />
 
 𝜗ৎ ⊹ ࣪ ɴᴏᴛ ʟᴏᴏᴋɪɴɢ 4 ʀᴏʟᴇᴘʟᴀʏ ʀɴ..
 
@@ -38,4 +39,3 @@
   𝜗ৎ ⊹ ࣪ ᴍʏ ꜰᴀᴠᴏʀɪᴛᴇ ᴀʀᴛɪꜱᴛ ɪꜱ ʟᴀᴜꜰᴇʏ, ʙᴇᴀʙᴀᴅᴏᴏʙᴇᴇ, ʙᴀʙʏᴍᴇᴛᴀʟ, ᴍxᴍᴛᴏᴏɴ, ᴡᴀᴠᴇ ᴛᴏ ᴇᴀʀᴛʜ ᴀɴᴅ ʟᴀᴜʀᴇɴ ʀᴏꜱᴇ!
 
   <img width="736" height="407" alt="Screenshot 2026-02-02 202222" src="https://github.com/user-attachments/assets/8abd588c-ae17-48d5-ab33-fa057bd4c9da" />
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31qz4oq5luvfkijg5a4r6aphqwxi&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31qz4oq5luvfkijg5a4r6aphqwxi&redirect=true)
